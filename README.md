@@ -1,1 +1,0 @@
-# responsi_ppw
